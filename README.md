@@ -9,3 +9,7 @@ Meu nome é Maria Eduarda de Faria Santos
 Você pode entrar em contato comigo 📫
 00001091718404sp@al.educacao.sp.gov.br.
 
+![](https://tenor.com/dIz0gcBvcur.gif)
+
+
+
