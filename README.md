@@ -12,7 +12,8 @@ Meu nome é Maria Eduarda de Faria Santos
 
 @mariaeduardadefaria
 
-![](https://media1.tenor.com/m/8QsOaiMKvWQAAAAd/cat-crunch.gif)
+![](https://media.giphy.com/media/nR4L10XlJcSeQ/giphy.gif?cid=790b76114si2urrqjg1jyljnspwewefobaztlx4mr18x6708&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+
 
 
 
